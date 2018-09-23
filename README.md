@@ -1,2 +1,2 @@
 # BOLONG
-fight to be stronger and stronger
+Everything is going on,but do not give up trying
